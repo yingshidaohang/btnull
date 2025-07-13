@@ -1,6 +1,6 @@
 <h2>BTNULL无名小站官网入口 - 海量影视资源在线观看|下载|网页|打不开</h2>
 <p>BTNULL无名小站（原名片库网）是一个集影视资源下载、在线播放和VIP视频解析为一体的综合性影视平台。该网站拥有海量的国内外影视资源，涵盖电影、电视剧、综艺节目和动漫等多种类型。用户可以在这里找到从经典老片到最新热剧的各种内容。BTNULL无名小站支持多种清晰度的视频播放和下载，包括1080P甚至蓝光品质，同时提供磁力资源和网盘资源下载。此外，网站还支持VIP视频解析功能，用户可以免费观看各大视频平台的VIP内容。BTNULL无名小站的界面设计简洁直观，操作便捷，为用户提供了良好的观影体验。</p>
-<p><strong>一键访问：</strong><a href="https://www.tdboxs.cn/sites/2515.html" target="_blank"><strong>BTNULL无名小站最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://btnull.tdboxs.cn/" target="_blank"><strong>BTNULL无名小站最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <h3><strong>功能特点</strong></h3>
